@@ -1,1 +1,1 @@
-https://violettach404.github.io/rsschool-cv/cv
+https://violettach404.github.io/rsschool-cv/
